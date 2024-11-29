@@ -9,5 +9,6 @@
 ### 🚀 Fair launch, buy here at: [Pump.Fun](https://pump.fun/)
 ### 📜 Contract address: 
 ### 😮‍💨 Buy now before launch at Raydium
+### 💪 $CZION is a community-driven meme coin
 ### 𝕏 [Follow Curly Zion](https://x.com/CurlyZion/)
 ### 🌐 [Join Telegram](https://t.me/CurlyZion)
