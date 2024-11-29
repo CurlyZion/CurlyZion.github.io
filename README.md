@@ -1,1 +1,1 @@
-# curlyzion.github.io
+# Curly Zion On Solana
