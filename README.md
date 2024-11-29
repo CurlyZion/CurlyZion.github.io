@@ -3,7 +3,7 @@
 ### 💯 100% token on liquidity
 ### 🔒 Liquidity locked and burn forever (by Pump.Fun)
 ### ❤️ No dev token
-### 🚀 Fair launch at Pump.Fun, buy here:
+### 🚀 Fair launch at Pump.Fun, buy here: https://pump.fun
 ### 😮‍💨 Buy now before launch at Raydium
 
 ![Curly_Zion-removebg-preview](https://github.com/user-attachments/assets/6fe249ff-a38e-4a49-b4e4-0e776b99b097)
