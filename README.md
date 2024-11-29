@@ -6,7 +6,7 @@
 ### 🔒 Liquidity locked and burn forever (by Pump.Fun)
 ### ❤️ No dev & no dev token
 ### 💰 Buy tax 0% / Sell tax 0%
-### 🚀 Pump.Fun fair launch project, buy here: [Pump.Fun](https://pump.fun/)
+### 🚀 Pump.Fun fair launch project, buy here: [Pump.Fun](https://pump.fun/coin/y9KZ1UmzRA7p9xJaVYmSjxjekpjb9pPxjgLYkkVpump)
 ### 📜 Contract address: 
 ### 😮‍💨 Buy now before launch at Raydium
 ### 💪 $CZI is a community-driven meme coin
