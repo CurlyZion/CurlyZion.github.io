@@ -1,5 +1,5 @@
 # Curly Zion On SOL
-### CurlyZion is a fun and friendly meme on Solana, $CZION intends to provide you excitement and was born to deliver you your dreams.
+## CurlyZion is a fun and friendly meme on Solana, $CZION intends to provide you excitement and was born to deliver you your dreams.
 
 - Fair & Fund Launch at Pump.Fun
   
