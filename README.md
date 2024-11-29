@@ -7,7 +7,7 @@
 ### ❤️ No dev & no dev token
 ### 💰 Buy tax 0% / Sell tax 0%
 ### 🚀 Pump.Fun fair launch project, buy here: [Pump.Fun](https://pump.fun/coin/y9KZ1UmzRA7p9xJaVYmSjxjekpjb9pPxjgLYkkVpump)
-### 📜 Contract address: 
+### 📜 Contract address: y9KZ1UmzRA7p9xJaVYmSjxjekpjb9pPxjgLYkkVpump
 ### 😮‍💨 Buy now before launch at Raydium
 ### 💪 $CZI is a community-driven meme coin
 ### 𝕏 [Follow Curly Zion](https://x.com/CurlyZion/)
