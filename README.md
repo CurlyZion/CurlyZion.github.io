@@ -1,5 +1,5 @@
-![Curly_Zion-removebg-preview](https://github.com/user-attachments/assets/6fe249ff-a38e-4a49-b4e4-0e776b99b097)
 # Curly Zion On SOL
+![Curly_Zion-removebg-preview](https://github.com/user-attachments/assets/6fe249ff-a38e-4a49-b4e4-0e776b99b097)
 ## $CZION is a fun and friendly meme coin on Solana, $CZION intends to provide you excitement and was born to deliver you your dream of life.
 ### Credit: Curly Zion was created by Microsoft AI.
 ### 💯 100% token on liquidity
