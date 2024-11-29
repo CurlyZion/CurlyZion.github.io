@@ -9,4 +9,4 @@
 ### 🚀 Fair launch, buy here at: [Pump.Fun](https://pump.fun/)
 ### 📜 Contract address: 
 ### 😮‍💨 Buy now before launch at Raydium
-### 𝕏 [X / Twitter ](https://x.com/CurlyZion/)
+### 𝕏 [Follow Curly Zion](https://x.com/CurlyZion/)
