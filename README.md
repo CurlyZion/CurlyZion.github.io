@@ -1,6 +1,6 @@
 # Curly Zion On SOL
-## Curly Zion is a fun and friendly meme on Solana, $CZION intends to provide you excitement and was born to deliver you your dream of life.
-### Curly Zion was created by Microsoft AI.
+## $CZION is a fun and friendly meme coin on Solana, $CZION intends to provide you excitement and was born to deliver you your dream of life.
+### Credit: Curly Zion was created by Microsoft AI.
 ### 💯 100% token on liquidity
 ### 🔒 Liquidity locked and burn forever (by Pump.Fun)
 ### ❤️ No dev token
