@@ -1,6 +1,7 @@
 # Curly Zion On SOL
 ## CurlyZion is a fun and friendly meme on Solana, $CZION intends to provide you excitement and was born to deliver you your dream of life.
 ### 💯 100% token on liquidity
+### 🔒 Liquidity locked and burn forever (by Pump.Fun)
 ### ❤️ No dev token
 ### 🚀 Fair launch at Pump.Fun, buy here:
 ### 😮‍💨 Buy now before launch at Raydium
