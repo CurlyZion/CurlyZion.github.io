@@ -4,7 +4,7 @@
 ### 🔒 Liquidity locked and burn forever (by Pump.Fun)
 ### ❤️ No dev token
 ### 💰 Buy tax 0% / Sell tax 0%
-### 🚀 Fair launch at Pump.Fun, buy here: [Pump.Fun](https://pump.fun/)
+### 🚀 Fair launch, buy here at: [Pump.Fun](https://pump.fun/)
 ### 📜 Contract address: 
 ### 😮‍💨 Buy now before launch at Raydium
 
