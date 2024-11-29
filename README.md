@@ -10,3 +10,4 @@
 ### 📜 Contract address: 
 ### 😮‍💨 Buy now before launch at Raydium
 ### 𝕏 [Follow Curly Zion](https://x.com/CurlyZion/)
+### 🌐 [Telegram]([https://t.me/CurlyZion)
